@@ -5,4 +5,4 @@
 我是北京印刷学院数字媒体技术专业24届-2班的贾欣颖。
 ##希望加入414学习到
 我希望加入414能向学长学姐们学到一些课堂上学不到的知识，例如用Git制作游戏、建模等。同时也希望能结识一些志同道合的伙伴。
-！[image]_("C:\Users\J\Pictures\Screenshots\微信图片_20240924183602.jpg")
+！[image](https://cn.bing.com/images/search?q=%E9%A3%8E%E6%99%AF%E5%9B%BE%E7%89%87&FORM=IQFRBA&id=CC9F47A16620942F8E13B5627BACD99B5206B1F6)")
